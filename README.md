@@ -11,6 +11,9 @@
 > [Lucia]() - [藍悼花 -aitouka- / 酔シグレ feat.Lucia](https://youtu.be/LEjZ3lJPzN0) <img src="media/LEjZ3lJPzN0/Screenshot_2024-11-17-15-15-57-60.png">
 
 
+> [HalaCG]() - [UNBREAKABLE | Goddess of Victory: Nikke Cover | HalaCG x Nahu Pyrope (Official MV)](https://youtu.be/rjzKbIZYkY8) <img src="media/rjzKbIZYkY8/Screenshot_2024-11-17-15-19-20-94.png">
+
+
 > [AI Imaginary World]() - [Meminta AI untuk menciptakan wanita tercantik untuk setiap negara](https://youtu.be/CnN0H7_-FA8) <img src="media/CnN0H7_-FA8/Screenshot_2024-11-17-12-04-46-32.png">
 
 vsvmp_ljpjpjp - [Tera /少女理論観測所](https://m.youtube.com/@glochannel) - 2022_10_20 - [【東方PV】ワンルール・ゲームチェンジャー（ネクロファンタジア）【少女理論観測所公式】](https://youtu.be/FkiLC9zWD1s) <img src="media/FkiLC9zWD1s/Screenshot_2024-11-17-12-23-59-89.png">
