@@ -8,7 +8,7 @@
 > vsvmibgf - [Tak_mfk](https://m.youtube.com/@tak_mfk6101) - [【フリーBGM】降臨せし破滅の象徴【かっこいい・ラスボス・戦闘・悲しい・絶望・壮大】](https://youtu.be/tuGoy-oS6iU) <img src="media/tuGoy-oS6iU/Screenshot_2024-11-17-12-34-15-38.png">
 
 
-> [Lucia]() - [藍悼花 -aitouka- / 酔シグレ feat.Lucia](https://youtu.be/LEjZ3lJPzN0) <img src"media/LEjZ3lJPzN0/Screenshot_2024-11-17-15-15-57-60.png">
+> [Lucia]() - [藍悼花 -aitouka- / 酔シグレ feat.Lucia](https://youtu.be/LEjZ3lJPzN0) <img src="media/LEjZ3lJPzN0/Screenshot_2024-11-17-15-15-57-60.png">
 
 
 > [AI Imaginary World]() - [Meminta AI untuk menciptakan wanita tercantik untuk setiap negara](https://youtu.be/CnN0H7_-FA8) <img src="media/CnN0H7_-FA8/Screenshot_2024-11-17-12-04-46-32.png">
