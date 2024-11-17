@@ -1,4 +1,7 @@
 # salsakamala18_vsv_un
+> vsvibg - [フリーBGMチャンネル Unique Gear](https://m.youtube.com/@uniquegear) - 2024_12_24 - [【フリーBGM】覚醒して圧倒的勝利する戦闘曲【unleash】](https://youtu.be/FADQIdAgeeg) <img src="media/FADQIdAgeeg/Screenshot_2024-11-17-13-00-51-44.png">
+
+
 > vsvmibg - [AnimAminA【フリーBGM】](https://m.youtube.com/@AnimAminA-BGM) - [【フリーBGM】胡蝶夢想【戦闘・かっこいい】](https://youtu.be/sdi7oqj1zrA) <img src="media/sdi7oqj1zrA/Screenshot_2024-11-17-12-47-09-17.png">
 
 
