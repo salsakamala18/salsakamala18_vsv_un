@@ -1,5 +1,5 @@
 # salsakamala18_vsv_un
-> vsvmibg - []() - [【フリーBGM】降臨せし破滅の象徴【かっこいい・ラスボス・戦闘・悲しい・絶望・壮大】]()
+> vsvmibg - [Tak_mfk](https://m.youtube.com/@tak_mfk6101) - [【フリーBGM】降臨せし破滅の象徴【かっこいい・ラスボス・戦闘・悲しい・絶望・壮大】](https://youtu.be/tuGoy-oS6iU) <img src="media/tuGoy-oS6iU/Screenshot_2024-11-17-12-34-15-38.png">
 
 
 > [AI Imaginary World]() - [Meminta AI untuk menciptakan wanita tercantik untuk setiap negara](https://youtu.be/CnN0H7_-FA8) <img src="media/CnN0H7_-FA8/Screenshot_2024-11-17-12-04-46-32.png">
